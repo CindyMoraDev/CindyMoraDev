@@ -13,8 +13,9 @@
   
 
 🏛️ I'm a professional with more than 10 years of experience in the administrative area of several industries.    
-  
 
+
+💻 My page ➡️ <strong><a href="https://cindymoradev.com" rel="nofollow"></a><a href="https://cindymoradev.com" rel="nofollow">cindymoradev.com)</a></strong>
 <br/>  
 
 
